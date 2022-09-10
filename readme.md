@@ -17,6 +17,13 @@ Irish Independent editor Fionnán Sheahan described the book as a polemic, notin
 
 Entertainment Weekly writers ranked the book as the 10th best of the decade, with Seija Rankin writing, "Both of Sally Rooney’s novels capture the millennial ethos with raw honesty and impeccable insight. But what she broke ground with in Conversations With Friends, she perfected in Normal People."[13]
 ##	Awards
+
+Award	Year	Result
+Costa Book Awards for Best Novel	2018	Won[9]
+British Book Award for Book of the Year	2019	Won[2]
+Man Booker Prize	2018	Longlisted[7]
+Women's Prize for Fiction	2019	Longlisted[10]
+
 ##	Adaptation
 ##  Sally Rooney
 ###	Other Books
